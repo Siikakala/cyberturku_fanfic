@@ -21,3 +21,5 @@ Heti kun huomasin Heidin viestin, pistin braindance-nauhoituksen päälle ja fei
 Angel tietää että teen näin koska keikat kestää välillä pitkään ja tarve yllättää kuitenkin.
 
 ### Askeleita ovella
+Asuntoon kuuluu käytävän äänet hieman - tunnistan Heidin raskaat askeleet jo kaukaa ja menen nurkan
+taakse odottamaan.
