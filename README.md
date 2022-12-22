@@ -1,3 +1,3 @@
 # Cyberturku FanFiction by Mira
 
-* [Ensimmäinen joulu Turussa]("Ensimmäinen joulu Turussa.md")
+* [Ensimmäinen joulu Turussa](first_christmas_in_turku.md)
