@@ -2,7 +2,7 @@
 
 Written in Finnish.
 
-!! Tämä repository on osa suurempaa jakyll-generoitua saittia !!
+!! Tämä repository on osa suurempaa jekyll-generoitua saittia !!
 
 NSFW lesboilua. Elena päähenkilönä, vaihtelevin vastakappalein. Edesmennyt vaimonsa pää-ship, mutta muitakin naisia löytyy.
 
