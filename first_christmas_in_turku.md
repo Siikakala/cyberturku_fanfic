@@ -1,6 +1,10 @@
 # Ensimmäinen joulu Turussa
 
-> :warning: **Sisältövaroitukset:** veri, lesboseksi, kybernetiikka, bdsm 
+> :warning: *Sisältövaroitukset:*{: style="color: red; font-weight: 900"} :warning:
+> : veri
+> : lesboseksi
+> : kybernetiikka
+> : bdsm 
 
 ## Kolmas adventti
 
