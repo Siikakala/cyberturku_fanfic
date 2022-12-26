@@ -1,6 +1,6 @@
 # Ensimmäinen joulu Turussa
 
-> :warning: *Sisältövaroitukset:*{: style="color: red; font-weight: 900"} :warning:
+> ⚠ *Sisältövaroitukset:*{: style="color: red; font-weight: 900"} ⚠
 > : veri
 > : lesboseksi
 > : kybernetiikka
