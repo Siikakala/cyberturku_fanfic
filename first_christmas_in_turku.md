@@ -1,8 +1,7 @@
 ---
 layout: post
+title: Ensimmäinen joulu Turussa
 ---
-
-# Ensimmäinen joulu Turussa
 
 > ⚠ *Sisältövaroitukset:*{: style="color: red; font-weight: 900"} ⚠
 > : veri
