@@ -1,13 +1,8 @@
 ---
-layout: post
+layout: fanfic_post
 title: Ensimmäinen joulu Turussa
+cw: [Veri, Lesboseksi, Kybernetiikka, BDSM]
 ---
-
-> *⚠ Sisältövaroitukset: ⚠*{: style="color: red; font-weight: 900"}
-> : veri
-> : lesboseksi
-> : kybernetiikka
-> : bdsm 
 
 ## Kolmas adventti
 
