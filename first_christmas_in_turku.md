@@ -1,5 +1,7 @@
 # Ensimmäinen joulu Turussa
 
+> ==Sisältövaroitukset: veri, lesboseksi, kybernetiikka, bdsm== 
+
 ## Kolmas adventti
 
 ### Heidin odotus
