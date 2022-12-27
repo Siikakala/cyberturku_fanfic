@@ -1,6 +1,7 @@
 ---
 layout: fanfic_post
 title: Ensimmäinen joulu Turussa
+author: Mira Ojamo
 tags: [NSFW, Elena, Heidi]
 cw: [Veri, Lesboseksi, Kybernetiikka, BDSM]
 ---
@@ -36,7 +37,7 @@ Heidin viereen, Heidi nappaa äkisti takaraivostani kiinni oikealla kädellään
 Suudelma ei ollut kovin pitkä mutta sitäkin tunnepitoisempi. "Elena, you look _gorgeous_" - Heidin on pakko
 viitata vähäisiin vaatteisiini, koska halusin olla hieman extra tänä iltana. Hempeänpinkki babydoll, joka on
 niin läpikuultava että se ei todellisuudessa peitä mitään, seksikkäin mustanvioletti liivi-stringisettini ja
-stay-up -sukat. 
+stay-up -sukat.
 
 Hymyilen viekkaasti hieman, annan lyhyen suukon ja pyyhin verisiä hiuksia Heidin kasvoilta. "How much of this
 fresh blood is yours? You look seriously wounded!" - olen edelleen huolissani Heidin hyvinvoinnista, samalla kun
@@ -60,7 +61,7 @@ jo luotiliivinsä pois, eli täysin voimaton hän ei ole - se kapistus kun paina
 
 Pian Heidillä ei ollut enää kuin liivit yläosassa. Autan hänet uudestaan seisomaan ja alan ahnaasti kiskomaan
 housuja ja muita kerroksia päältään. Varsin pian Heidi on alusvaatteisillaan. Ollessani vielä polvillani, kiskon häntä
-lähemmäs itseäni ja kiskon pantsuja sen verran alaspäin että saan annettua häpykummulle märän pusun. "Now, to bath!", 
+lähemmäs itseäni ja kiskon pantsuja sen verran alaspäin että saan annettua häpykummulle märän pusun. "Now, to bath!",
 samalla kun katson Heidiä käskevästi. Heidi katsoo takaisin hieman huvittuneella katsella mutta lähtee kohti kylppäriä
 huomattavasti keveimmin askelin.
 
@@ -89,7 +90,7 @@ minut melkein syödään elävältä!
 Alan hamuamaan käsilläni Heidin kylkiä myöden kohti haaroväliään, mutta Heidi huomaa tämän oitis. "Nope, you have
 had your fun already. Now it's my turn" ja Heidi työntää minut kokonaan veteen, kastellen minut läpikotaisin. "I wonder
 how you handle this with wet clothes" Heidi sanoi, hymyillen viekkaasti nostaessaan minua ylös. Heidi on vahva, en
-pysty vastustamaan tuota metallista kättä vaikka haluaisin. Ranteistani napataan selkäni takaa kiinni ja jätetään 
+pysty vastustamaan tuota metallista kättä vaikka haluaisin. Ranteistani napataan selkäni takaa kiinni ja jätetään
 napakkaan otteeseen samalla kun Heidi nostaa minut lähes kokonaan vedestä ylös, kaartaen selkääni taaksepäin.
 
 "Now, let me hear you moan" ja Heidi nostaa lantioni kasvoilleen, alkaen nuolla pilluani pantsujen läpi. Bath bomb
