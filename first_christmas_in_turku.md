@@ -28,7 +28,7 @@ Angel tietää että teen näin koska keikat kestää välillä pitkään ja tar
 ### Askeleita ovella
 Asuntoon kuuluu käytävän äänet hieman - tunnistan Heidin raskaat askeleet jo kaukaa ja menen nurkan
 taakse odottamaan. Oven PIN painellaan varsin väsyneen oloisesti ja ovi käy raskaasti. Naisääni päästää
-pitkän, ähisevän huokauksen samalla kun kuuluu pehmeähkö *THUMB*. Sanon pehmeästi "Heidii, my love", ja
+pitkän, ähisevän huokauksen samalla kun kuuluu pehmeähkö **THUMB**. Sanon pehmeästi "Heidii, my love", ja
 pyörähdän nurkan takaa esiin. Heidi on yltäpäältä veressä, osin vielä tihkuen. En näytä sitä ulospäin, mutta
 vavahdan hieman. Otan pari nopeaa askelta Heidin luo tarkistamaan että hän selviää hengissä. Kun kyykistyn
 Heidin viereen, Heidi nappaa äkisti takaraivostani kiinni oikealla kädellään ja nappaa minut suuteluunsa.
@@ -66,7 +66,7 @@ huomattavasti keveimmin askelin.
 
 Päästyämme kylppäriin, tarkistan ammeen veden lämpötilan, joka on juuri täydellinen, ja lasken bath bombin rituaalimaisesti
 veteen. Vesi alkaa värjäytyä violetiksi ja makea tuoksu täyttää kylppäriä. "Is this ..blackberry? Didn't you save
-those for _special occasions_" Heidi kysyi. "Yup! And one of those is *now*" Riisun Heidin liivit yhdellä kädellä,
+those for _special occasions_" Heidi kysyi. "Yup! And one of those is **now**" Riisun Heidin liivit yhdellä kädellä,
 samalla kiskoen pantsuja toisella. "But first we need to do something to those wounds."
 
 Otan suihkun, ja alan kastelemaan Heidiä varovasti lämpimällä vedellä. Muutaman haavan kohdalla Heidi urahtaa hieman
@@ -78,7 +78,7 @@ lyhyet hiukset, koska mitä pidempään ne ovat veriset, sitä vaikeampaa ne on 
 Huuhdeltuani Heidin hiukset, halaan häntä takaapäin ja kuiskaan korvaan "So, do you want to know why I have saved those
 blackberry ones?" hymyillen kuultavasti. Heidi nousee seisomaan minun vielä roikkuessa hänen kaulallaan ja koppaa syliinsä
 vasemmalla kädellään. Metallinen käsi ei ole onneksi niin kylmä kuin yleensä, kiitos peseytymisen. "I can already feel it
-just from the sweet smell - It's boosting erogenous feel. And I want to see how horny _*you*_ are." Olin edelleen
+just from the sweet smell - It's boosting erogenous feel. And I want to see how horny _**you**_ are." Olin edelleen
 babydollissani ja alusvaatteissani kun Heidi kantoi minut sylissään ammeeseen.
 
 Ei kulunut kuin muutama sekunti niin tunsin kuinka nännini alkoivat reagoida liivieni pehmeään kankaaseen ja kuinka
