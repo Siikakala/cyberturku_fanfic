@@ -1,7 +1,7 @@
 ---
 layout: fanfic_post
 title: Ensimmäinen joulu Turussa
-tags: ["Main ship", NSFW, Elena, Heidi]
+tags: [NSFW, Elena, Heidi]
 cw: [Veri, Lesboseksi, Kybernetiikka, BDSM]
 ---
 
