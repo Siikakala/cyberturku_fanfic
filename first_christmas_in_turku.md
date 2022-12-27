@@ -112,7 +112,7 @@ nuolemista ja Heidi saa toisen orgasmin ensimmäisen päälle. Ja kolmannen.
 "Enough" Heidi käskee pehmeällä äänellä ja peräännyn pillun huomasta ilkikurisesti hymyillen. "That felt ..refreshing. Good
 girl". Tuo kehu tuntui jossain todella syvällä sielussani asti ja punastun korviin asti. Heidi huomaa tämän ja laskeutuu alleni
 takaisin veteen. "Bring me the lush" kuiskataan korvaani. En ole varma miten sekaisin tuosta pilluun työnnettävästä vibrasta
-menen, mutta Heidin käskyjä tulee noudattaa. Joten nousen jäydästi vedestä, ja käyn hakemassa lelun makuuhuoneesta ojentaen
+menen, mutta Heidin käskyjä tulee noudattaa. Joten nousen jäykästi vedestä, ja käyn hakemassa lelun makuuhuoneesta ojentaen
 sen Heidille. "Nah, you can insert it by yourself. Turn it on and put it in while laying on your back on the floor" - tein
 kuten käsketään ja heti päällekäännön jälkeen Heidi ottaa leluun yhteyden. Olin aivan käsittämättömän märkä, lelu sujahtaa
 sisääni täysin ilman yrittämistä - vibra on kuitenkin aika kookas. Yleensä lämmittelyä tarvitaan enemmänkin ennenkö saan
