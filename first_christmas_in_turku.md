@@ -117,7 +117,7 @@ sen Heidille. "Nah, you can insert it by yourself. Turn it on and put it in whil
 kuten käsketään ja heti päällekäännön jälkeen Heidi ottaa leluun yhteyden. Olin aivan käsittämättömän märkä, lelu sujahtaa
 sisääni täysin ilman yrittämistä - vibra on kuitenkin aika kookas. Yleensä lämmittelyä tarvitaan enemmänkin ennenkö saan
 sen mahtumaan. Heidi vastaa hämmennykseeni hymyllä. "Now, imitate starfish. You may not move your limbs until I say so" Heidi
-käski ja levitin käteni ja jalkani lattiaa myöden. "Close your eyes" "You may come when you wish but you must count how many
+käski ja levitin käteni ja jalkani lattiaa myöden. "Close your eyes" "You may cum when you wish but you must count how many
 times you did". Tuo viimeinen lause oli aivan ihanan kamala - koska neljän tai viiden orgasmin jälkeen laskuissa pysyminen on
 vaikeaa. Vibra käynnistyi patternilla, jolla Heidi tietää minun tulevan nopeasti. Ja sain parissa sekunnissa tuplaorgasmin.
 
