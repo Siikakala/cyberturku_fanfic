@@ -2,7 +2,7 @@ fanfics:
   - title: Ensimmäinen joulu Turussa
     url: fanfics/cyberturku/first-christmas-in-turku.html
     desc: Elenan ja Heidin ensimmäinen joulu Australian Melbournesta Turkuun muuton jälkeen.
-    long_desc: Mitä tapahtuukaan ensimmäisenä jouluna Australian Melbournesta Turkuun muuton jälkeen, kun Heidi palaa eliminointikeikan jälkeen väsyneenä kotiin? Elenalla on pieni yllätys odottamssa.
+    long_desc: Mitä tapahtuukaan ensimmäisenä jouluna Australian Melbournesta Turkuun muuton jälkeen, kun Heidi palaa eliminointikeikan jälkeen väsyneenä kotiin? Elenalla on pieni yllätys odottamassa.
     highlight: Complete
     language: fi
     tags: [Main ship, Elena, Heidi]
@@ -18,8 +18,7 @@ fanfics:
   - title: Another Placeholder
     url: fanfic
     desc: This is just an another placeholder for testing
-    long_desc: Tämänkin kortin tarkoituksena on vain testata asettelua, ja tästäkin klikkaamalla päätyy vain fanfic-sivulle! Isn't these lovely?
     highlight: Trolling
     language: woman_facepalming
-    tags: [test]
-    nsfw: false
+    tags: [test-ing]
+    nsfw: mayhaps
