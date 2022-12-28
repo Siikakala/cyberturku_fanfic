@@ -2,7 +2,7 @@
 layout: fanfic_post
 title: Ensimmäinen joulu Turussa
 author: Mira Ojamo
-tags: [Main ship, NSFW, Elena, Heidi]
+tags: [Main ship, Elena, Heidi]
 cw: [Veri, Lesboseksi, Kybernetiikka, BDSM]
 ---
 
