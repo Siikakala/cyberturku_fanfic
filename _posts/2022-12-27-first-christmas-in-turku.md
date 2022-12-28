@@ -1,5 +1,4 @@
 ---
-layout: fanfic_post
 title: Ensimmäinen joulu Turussa
 author: Mira Ojamo
 tags: [Main ship, Elena, Heidi]
