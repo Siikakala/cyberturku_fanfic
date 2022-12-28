@@ -9,7 +9,6 @@ fanfics:
     nsfw: yes
   - title: Placeholder
     url: fanfic
-    desc: This is just a placeholder for testing
     long_desc: Tämän kortin tarkoituksena on vain testata asettelua, ja sitä klikkaamalla päätyy vain fanfic-sivulle! Isn't it lovely?
     highlight: WIP
     language: en
@@ -21,4 +20,3 @@ fanfics:
     highlight: Trolling
     language: woman_facepalming
     tags: [test-ing]
-    nsfw: mayhaps
