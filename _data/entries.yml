@@ -15,3 +15,11 @@ fanfics:
     language: en
     tags: [test]
     nsfw: false
+  - title: Another Placeholder
+    url: fanfic
+    desc: This is just an another placeholder for testing
+    long_desc: Tämänkin kortin tarkoituksena on vain testata asettelua, ja tästäkin klikkaamalla päätyy vain fanfic-sivulle! Isn't these lovely?
+    highlight: Trolling
+    language: woman_facepalming
+    tags: [test]
+    nsfw: false
