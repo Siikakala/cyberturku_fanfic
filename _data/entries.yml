@@ -6,7 +6,7 @@ fanfics:
     highlight: Complete
     language: fi
     tags: [Main ship, Elena, Heidi]
-    nsfw: true
+    nsfw: yes
   - title: Placeholder
     url: fanfic
     desc: This is just a placeholder for testing
@@ -14,7 +14,7 @@ fanfics:
     highlight: WIP
     language: en
     tags: [test]
-    nsfw: false
+    nsfw: n
   - title: Another Placeholder
     url: fanfic
     desc: This is just an another placeholder for testing
