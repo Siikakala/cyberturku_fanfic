@@ -3,7 +3,7 @@ title: Ensimmäinen joulu Turussa
 author: Mira Ojamo
 tags: [Main ship, Elena, Heidi]
 cw: [Veri, Lesboseksi, Kybernetiikka, BDSM]
-language: en
+language: fi
 ---
 
 ## Kolmas adventti
