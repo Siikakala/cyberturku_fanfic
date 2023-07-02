@@ -7,16 +7,3 @@ fanfics:
     language: fi
     tags: [Main ship, Elena, Heidi]
     nsfw: yes
-  - title: Placeholder
-    url: fanfic
-    long_desc: Tämän kortin tarkoituksena on vain testata asettelua, ja sitä klikkaamalla päätyy vain fanfic-sivulle! Isn't it lovely?
-    highlight: WIP
-    language: en
-    tags: [test]
-    nsfw: n
-  - title: Another Placeholder
-    url: fanfic
-    desc: This is just an another placeholder for testing
-    highlight: Trolling
-    language: woman_facepalming
-    tags: [test-ing]
