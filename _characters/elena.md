@@ -6,8 +6,8 @@ locale: fi-FI
 name: Elena Dawnson
 firstname: Elena
 category: fictional
+image: elena.jpg
 ---
-![Picture of Elena]({% include images/cyberturku/elena.jpg %} "Elena")
 
 Elena on hahmoni Cyberpunk 2020 kampanjassa. Techie, joka on erityisen hyvä "MacGyverismissä" ja cybernetiikkaan liittyvässä tekniikassa. Kampanja asettuu Turkuun 2200-luvulle.
 32-vuotias Aussi, jättänyt muun perheensä (elävänä) taakseen Melbourneen ja muuttanut Suomeen rakkaan vaimonsa Heidin kanssa 4 vuotta sitten. Heidi, soolo-samurai, kuollut
