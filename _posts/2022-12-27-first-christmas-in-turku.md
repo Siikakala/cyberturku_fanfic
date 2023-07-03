@@ -4,6 +4,8 @@ author: Mira Ojamo
 tags: [Main ship, Elena, Heidi]
 cw: [Veri, Lesboseksi, Kybernetiikka, BDSM]
 language: fi
+locale: fi-FI
+description: Mitä tapahtuukaan ensimmäisenä jouluna Australian Melbournesta Turkuun muuton jälkeen, kun Heidi palaa eliminointikeikan jälkeen väsyneenä kotiin? Elenalla on pieni yllätys odottamassa.
 ---
 
 ## Kolmas adventti
