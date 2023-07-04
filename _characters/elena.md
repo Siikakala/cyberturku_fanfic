@@ -6,7 +6,7 @@ locale: fi-FI
 name: Elena Dawnson
 firstname: Elena
 category: fictional
-image: elena.jpg
+image: assets/images/cyberturku/elena.jpg
 ---
 
 Elena on hahmoni Cyberpunk 2020 kampanjassa. Techie, joka on erityisen hyvä "MacGyverismissä" ja cybernetiikkaan liittyvässä tekniikassa. Kampanja asettuu Turkuun 2200-luvulle.
